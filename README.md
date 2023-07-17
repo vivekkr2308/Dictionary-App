@@ -1,3 +1,11 @@
+1. ![1](https://github.com/vivekkr2308/Dictionary-App/assets/65390124/b65d5488-f5fd-473f-a3d2-529e904b5fe5)
+
+
+2. ![2](https://github.com/vivekkr2308/Dictionary-App/assets/65390124/32d23361-c7ad-4278-8187-77bbe08ffcfa)
+
+3. ![3](https://github.com/vivekkr2308/Dictionary-App/assets/65390124/362e38e3-0fa1-4385-8a4f-46794fd90289)
+
+
 
 
 
